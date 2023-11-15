@@ -16,3 +16,5 @@
 Работа в Pycharm - https://docs.google.com/document/d/13FUAk6FLI0xMmgUtyxHpiksmztTxOWsP9btJswkmj0E/edit
 
 Установка РЕДос+Блюфиш на домашний пк https://docs.google.com/document/d/12KWP6L4pz_zQVP8Qq4w6CV2YbQzDGFsq8lNHKU-Dc8M/edit
+
+Конспект Phyton + задания - https://docs.google.com/document/d/17EzkT665wOMuO-LNY1GTtKnhkUEt3IDoyhJNUS5bBAA/edit?usp=sharing
