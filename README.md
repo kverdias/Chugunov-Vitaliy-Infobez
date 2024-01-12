@@ -5,6 +5,8 @@
 
 https://docs.google.com/document/d/1CzWG-VHI788moW6Q47pOr7XOhC10teKpXAZfET9NQgI/edit
 
+3 семестр 
+
 Задания:
 
 Конспект -https://docs.google.com/document/d/1-uu__qK3i7Z22dT5CNvK8e1T3qgj3ecG6yuczNigmWc/edit
