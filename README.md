@@ -5,6 +5,14 @@
 
 https://docs.google.com/document/d/1CzWG-VHI788moW6Q47pOr7XOhC10teKpXAZfET9NQgI/edit
 
+Микросхемы -
+
+https://drive.google.com/file/d/1LaRjBF9ruChwTX_WRq3BBBc7-99BU8Iy/view?usp=drive_link
+
+Туры -
+
+https://drive.google.com/file/d/1fB4ETbHLx3hAPEfO-q_HIETV2yVl120k/view?usp=drive_link
+
 3 семестр 
 
 Задания:
